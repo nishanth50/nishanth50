@@ -1,6 +1,6 @@
 ## NISHANTH PATHANGE
 
-👨‍💻  | AIML and Web Development Enthusiast | B.Tech Student
+👨‍💻  B.Tech Student
 
 🌍 [HYDERABAD,TELANGANA,INDIA]
 🎓 Studying BTECH at CMR Institute of Technology.
